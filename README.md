@@ -1,4 +1,4 @@
-- I’m @evoulutiontaxaccounting-eta
+- I’m @evolutiontaxaccounting-eta
 - 👀 I’m interested in education
 - 🌱 I’m currently learning this world
 - 💞️ I’m looking to collaborate on helping where I can
